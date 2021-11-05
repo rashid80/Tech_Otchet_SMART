@@ -1,0 +1,1 @@
+# Tech_Otchet_SMART
